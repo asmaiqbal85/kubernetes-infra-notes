@@ -84,4 +84,5 @@ Youtybe Video in Urdu:
 
 https://youtu.be/7ZObcqEq7hU?si=IQMkn_DiXzKygZ5h
 
+![image](https://github.com/user-attachments/assets/fc52dc72-6f28-4db9-a98a-de494e410906)
 
